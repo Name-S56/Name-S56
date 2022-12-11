@@ -14,11 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-###18岁，是学生。
+##18岁，是学生。
 目前很菜，英语都不好。
 
 
 ----
 18 years old,student
 can't create anything now,English in not good:(
-<a href="https://smms.app/image/geqKw1OizBZ3VS4" target="_blank"><img src="https://s2.loli.net/2022/07/30/geqKw1OizBZ3VS4.jpg" alt="688556-c90fb642fc-00000814.jpg"></a>
+<div>
+*but is touhou fans
+<div>
+<a href="https://sm.ms/image/on8TLRv4pNMhVW7" target="_blank"><img src="https://s2.loli.net/2022/07/27/on8TLRv4pNMhVW7.png" alt="博丽神社例大祭LOGO.png"></a>
