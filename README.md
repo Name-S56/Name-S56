@@ -21,4 +21,4 @@ Here are some ideas to get you started:
 ----
 18 years old,student
 can't create anything now,English in not good:(
-https://s2.loli.net/2022/07/30/geqKw1OizBZ3VS4.jpg
+<a href="https://smms.app/image/geqKw1OizBZ3VS4" target="_blank"><img src="https://s2.loli.net/2022/07/30/geqKw1OizBZ3VS4.jpg" alt="688556-c90fb642fc-00000814.jpg"></a>
