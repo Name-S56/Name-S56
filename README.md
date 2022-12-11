@@ -1,4 +1,4 @@
-### Hi there 👋
+
 
 <!--
 **Name-S56/Name-S56** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,4 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-18岁,是学生.
+###18岁，是学生。
+目前很菜，英语都不好。
+
+
+----
+18 years old,student
+can't create anything now,English in not good:(
+https://s2.loli.net/2022/07/30/geqKw1OizBZ3VS4.jpg
