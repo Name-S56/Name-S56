@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-##18岁，是学生。
+## 18岁，是学生。
 目前很菜，英语都不好。
 
 
