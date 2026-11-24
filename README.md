@@ -14,12 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-## 22岁，是学生。
 目前很菜，英语都不好。
 
 
 ----
-22 years old,student
 can't create anything now,English in not good:(
 <div>
 *but is touhou fans
